@@ -2,6 +2,7 @@
 
 - 🔭 I’m currently working on PaM
 - 🌱 I’m currently studing CC
-- 📫 How to reach me: 55 7697 8422 (peashooterś number)
+- 📫 How to reach me: 55 7697 8422 (peashooter's number)
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: Ubuntu user ![logo](https://github.com/user-attachments/assets/32cbac57-86fe-4e54-98fd-091966c82d55)
+- ⚡ Fun fact: Ubuntu user ![ubuntu_h3yny6ci](https://github.com/user-attachments/assets/affbe923-d522-4580-b2ef-1fd30187b942)
+
